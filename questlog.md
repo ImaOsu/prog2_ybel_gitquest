@@ -12,4 +12,7 @@ Erfrischt und gestärkt machte sich Markus auf den Weg, um die letzte Etappe sei
 
 50 Jahre. %50 Jahre war er gefangen. Vor ihm spiegelten sich der bewolkte Himmel und das Meer in ihren rollenden Bewegungen. Das Amulet pulste in seiner Hand. Er spürte Tief in seinem inneren noch wie es versuchte ihn in seinen Bann zu reissen.
 
-Doch jetzt "Endlich Frei" Das einzige das man an diesem Tag noch hörte war das plitschern des Wassers.
+Doch jetzt "Endlich Frei" Das einzige das man an diesem Tag noch hörte war das plitschern des Wassers. Plitsch Platsch Plitsch
+
+
+Oops Tag 04.6 = qest.loggeschichte
